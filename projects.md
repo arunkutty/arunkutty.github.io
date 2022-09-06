@@ -17,13 +17,16 @@ Calendar equivalent. Check out our [calendar web application](http://kollavarsha
 
 ### #non-tech
 <p>
+<blockquote class="imgur-embed-pub" lang="en" data-id="a/QOULSx9"  ><a href="//imgur.com/a/QOULSx9">Krishna and Radha - Kerala mural</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+</p>
+<p>
 <blockquote class="imgur-embed-pub" lang="en" data-id="a/2no5Fsw"  ><a href="//imgur.com/a/2no5Fsw">Acrylic painting project - Oct 2021</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 </p>
 <p>
 <blockquote class="imgur-embed-pub" lang="en" data-id="a/iDhIk9q"  ><a href="//imgur.com/a/iDhIk9q">Painting project - Sep 2021</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 </p>
 <p>
-
+<blockquote class="imgur-embed-pub" lang="en" data-id="PRTV0PI"  ><a href="//imgur.com/PRTV0PI">Kerala Mural Painting - Aug 2021</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 </p>
 <p>
 <blockquote class="imgur-embed-pub" lang="en" data-id="a/ZMpEzfh"  ><a href="//imgur.com/a/ZMpEzfh">Mural Painting - Oct 2020</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
